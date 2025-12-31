@@ -1,0 +1,1 @@
+- ```Detailed Bangla hand notes are uploaded here.```
